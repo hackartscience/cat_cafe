@@ -6,7 +6,7 @@ However, opening any sort of food-related in Boston can be excruciating.
 Instead, we decided to start with a pop-up cafe and a small audience.
 The idea is to use it as a pilot and later on include it as part of the proposal for a permanent site.
 
-Since funding was an issue, we went searching for grants and initiatives that would support this kind of project. That is [recisely how we ran into the [MindHandHeart Innovation Fund at MIT](http://mindhandheart.mit.edu/innovation-fund).
+Since funding was an issue, we went searching for grants and initiatives that would support this kind of project. That is precisely how we ran into the [MindHandHeart Innovation Fund at MIT](http://mindhandheart.mit.edu/innovation-fund).
 
 Here is our proposal:
 
